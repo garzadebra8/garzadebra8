@@ -1,1 +1,0 @@
-Hello, this project is the start of my final portfolio, it will showcase some of my photos. Oh yeah, I forgot to mention that I am a photographer, I like to  take photos of anything that catches my eye.
